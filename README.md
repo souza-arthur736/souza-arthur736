@@ -7,4 +7,4 @@ Discord: arthur_dsb
 
 Instagram: @arthursb._
 
-Currently studying Software Analysis and Development at Universidade Tiradentes, 2025-
+Currently studying Computer Engineering at Escola Politécnica de Pernambuco, 2025-
